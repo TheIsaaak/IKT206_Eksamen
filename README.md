@@ -1,1 +1,0 @@
-# IKT206_Eksamen
